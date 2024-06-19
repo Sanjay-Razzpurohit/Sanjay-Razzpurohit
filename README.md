@@ -6,7 +6,7 @@
 
 💼 I am actively seeking opportunities in data science or related fields where I can apply my analytical skills and passion for data-driven decision making.
 
-📫 You can reach me via email at [your-email@example.com](mailto:your-email@example.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile).
+📫 You can reach me via email at razzpurohitsanjay00@gmail.com or connect with me on linkedin.com/in/sanjay--31a70a281.
 
 😄 Pronouns: He/Him
 
