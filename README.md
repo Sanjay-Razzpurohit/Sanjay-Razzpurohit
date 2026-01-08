@@ -2,11 +2,11 @@
 
 👀 I’m interested in data science and exploring its applications in various domains.
 
-🌱 I’m currently learning advanced machine learning techniques and data visualization tools to enhance my skill set.
+🌱 I’m completed couarce of  advanced machine learning techniques and data visualization tools to enhance my skill set.
 
 💼 I am actively seeking opportunities in data science or related fields where I can apply my analytical skills and passion for data-driven decision making.
 
-📫 You can reach me via email at razzpurohitsanjay00@gmail.com or connect with me on linkedin.com/in/sanjay--31a70a281.
+📫 You can reach me via email at razzpurohitsanjay00@gmail.com or connect with me on www.linkedin.com/in/sanjay8824312768
 
 😄 Pronouns: He/Him
 
